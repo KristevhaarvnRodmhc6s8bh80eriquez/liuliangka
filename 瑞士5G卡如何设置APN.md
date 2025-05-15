@@ -1,4 +1,4 @@
-# 瑞士5G卡如何设置APN [[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 瑞士5G卡如何设置APN [[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 在瑞士使用5G网络，对于许多初来乍到的朋友来说，可能会遇到不少问题，比如如何正确设置APN（Access Point Name）。APN是手机连接互联网时所使用的网络接入点，它决定了你的设备如何与运营商的网络进行通信。如果你刚拿到一张瑞士的5G SIM卡，或者正在尝试切换到新的服务提供商，那么这篇文章将为你提供详细的指导。
 
@@ -58,6 +58,6 @@
 
 ## 总结
 
-设置APN虽然听起来复杂，但实际上只要掌握了基本的方法，并且能够获取到正确的APN信息，就完全能够轻松搞定。希望这篇指南对你有所帮助，让你在瑞士享受流畅的5G网络体验[[TG💪+ @donk5151](https://t.me/s/donk5151)]。
+设置APN虽然听起来复杂，但实际上只要掌握了基本的方法，并且能够获取到正确的APN信息，就完全能够轻松搞定。希望这篇指南对你有所帮助，让你在瑞士享受流畅的5G网络体验[[TG💪+ @esim1088](https://t.me/s/esim1088)]。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

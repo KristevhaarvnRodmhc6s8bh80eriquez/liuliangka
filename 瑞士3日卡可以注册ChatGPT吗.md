@@ -4,7 +4,7 @@
 
 首先，我们需要了解瑞士3日卡是什么。瑞士3日卡是一种预付费电话卡，通常用于短期旅行者在瑞士期间拨打本地或国际电话。这类卡的特点是使用期限较短，且可能不具备传统手机卡的所有功能。因此，在考虑其是否适合用于注册ChatGPT时，我们需要从几个方面进行分析。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 ### 注册ChatGPT的基本要求
 
@@ -30,4 +30,4 @@
 
 无论最终结果如何，探索新技术总是充满乐趣的旅程。希望这篇文章能帮助你更好地理解相关知识，并为你的实践提供一定参考价值。
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
