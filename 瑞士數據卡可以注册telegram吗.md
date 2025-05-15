@@ -1,4 +1,4 @@
-**瑞士数据卡是否能注册Telegram？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**瑞士数据卡是否能注册Telegram？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在当今数字化时代，社交媒体平台如雨后春笋般涌现，而Telegram无疑是其中备受关注的一款应用。它以强大的加密技术、丰富的功能和全球化的用户群体吸引了无数人的目光。然而，对于一些想要使用Telegram的人来说，尤其是那些身处瑞士的用户，可能会有一个疑问：瑞士的数据卡能够用来注册Telegram吗？
 
@@ -16,4 +16,4 @@
 
 最后提醒大家一句：无论采用何种方式接入Telegram，都要始终牢记网络安全的重要性。不仅要保护好个人隐私，还要避免参与任何违法活动。只有这样，我们才能真正享受到这款优秀应用带来的乐趣与便利！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
