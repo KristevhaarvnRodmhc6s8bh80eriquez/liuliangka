@@ -1,4 +1,4 @@
-**澳门数据卡怎么注册wsapp？轻松上手指南[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**澳门数据卡怎么注册wsapp？轻松上手指南[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 大家好呀！今天咱们来聊聊一个很多人都关心的话题——如何在澳门使用数据卡注册wsapp。如果你最近计划去澳门旅行，或者已经在澳门，但对wsapp的注册流程感到困惑，这篇文章绝对能帮到你。废话不多说，咱们直接进入正题！
 
@@ -40,4 +40,4 @@
 
 希望这篇指南对你有所帮助，如果有任何疑问，欢迎在评论区留言交流哦～最后，祝大家旅途愉快，玩转澳门！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

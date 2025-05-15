@@ -1,4 +1,4 @@
-# 如何在澳门使用旅游卡注册Gmail账号？[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 如何在澳门使用旅游卡注册Gmail账号？[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 如果你正在计划去澳门旅行，或者已经在澳门享受你的假期，那么你可能会对如何利用澳门的旅游卡注册一个Gmail邮箱感兴趣。这不仅能够帮助你在旅行中更好地管理电子邮件，还能让你更方便地与朋友和家人保持联系。今天，我们就来详细讲解一下如何通过澳门的旅游卡注册Gmail账号。
 
@@ -66,4 +66,4 @@
 
 无论你是在澳门的街头巷尾漫步，还是在酒店里放松身心，记得随时检查你的Gmail，与世界保持联系。祝你旅途愉快！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]

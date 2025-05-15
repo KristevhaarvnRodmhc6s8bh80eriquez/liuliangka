@@ -18,6 +18,6 @@
 
 最后，我想强调的是，无论技术如何发展，我们的目标始终是为了让生活变得更加美好。无论是使用澳门旅遊卡还是wsapp，最重要的是找到最适合自己的方式。希望大家都能在这个过程中享受到科技带来的乐趣！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
