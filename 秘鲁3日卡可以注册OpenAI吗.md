@@ -1,4 +1,4 @@
-# 秘鲁3日卡可以注册OpenAI吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 秘鲁3日卡可以注册OpenAI吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 大家好，今天咱们来聊聊一个很多人都关心的问题：秘鲁3日卡是否能够用来注册OpenAI？这个问题看似简单，但其实背后涉及不少细节和注意事项。如果你对这个话题感兴趣，或者正准备注册OpenAI账户，这篇文章可能会对你有所帮助。
 
@@ -48,4 +48,4 @@
 
 希望这篇文章能解答你的疑问，并帮助你在追求科技新体验的路上少走弯路。如果你还有其他相关问题，欢迎随时留言交流！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
