@@ -1,4 +1,4 @@
-**瑞士电话卡怎麽註冊TG[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**瑞士电话卡怎麽註冊TG[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 在瑞士，如果你刚拿到一张新的电话卡，或者准备使用当地的SIM卡来注册Telegram（简称TG），那么这篇文章就是为你量身定制的。我们将会详细讲解如何一步步完成这个过程，无论是初学者还是有一定经验的朋友都能轻松上手。
 
@@ -61,4 +61,4 @@
 
 ---
 
-[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)
+[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)

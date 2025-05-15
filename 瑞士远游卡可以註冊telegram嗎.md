@@ -1,4 +1,4 @@
-**瑞士远游卡可以注册Telegram吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]**
+**瑞士远游卡可以注册Telegram吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]**
 
 大家好！今天咱们来聊聊一个很有趣的问题：瑞士远游卡（Swiss Travel Pass）能不能用来注册Telegram。这个问题听起来可能有点奇怪，但其实背后涉及到了瑞士的通信服务、旅行卡的使用规则以及Telegram的一些限制。如果你也对这个话题感兴趣，那就跟着我一起深入了解吧！
 
@@ -22,4 +22,4 @@
 
 好了，关于瑞士远游卡能否注册Telegram的话题，我们就聊到这里了。希望这篇文章能对你有所帮助。如果你有任何疑问或想了解更多关于瑞士旅行的信息，欢迎随时留言交流。祝大家旅途愉快，生活精彩！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
