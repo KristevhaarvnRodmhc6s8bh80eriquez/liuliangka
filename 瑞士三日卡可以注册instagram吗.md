@@ -1,4 +1,4 @@
-# 瑞士三日卡可以注册Instagram吗？[[TG💪+ @donk5151](https://t.me/s/donk5151)]
+# 瑞士三日卡可以注册Instagram吗？[[TG💪+ @esim1088](https://t.me/s/esim1088)]
 
 **瑞士三日卡是什么？**
 
@@ -62,4 +62,4 @@
 
 最后，无论你是否选择使用瑞士三日卡，都不要忘记珍惜旅途中的每一刻。因为旅行的意义，从来都不在于最终的目的地，而在于一路上的风景和故事。愿你在瑞士的每一天都充满惊喜和感动！
 
-[[TG💪+ @donk5151](https://t.me/s/donk5151) ![Image](https://i.postimg.cc/rwNCRYN7/Snipaste-2025-04-30-17-27-05.png)]
+[[TG💪+ @esim1088](https://t.me/s/esim1088) ![Image](https://i.postimg.cc/4NQfJmqS/Snipaste-2025-05-13-00-14-12.png)]
